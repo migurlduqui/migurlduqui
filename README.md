@@ -1,4 +1,4 @@
-Hi, I’m @migurlduqui
+Hi, I’m Miguel Villanueva.
 ---------------------
 
 Computer Science Student at University of Aberdeen in Scotland
